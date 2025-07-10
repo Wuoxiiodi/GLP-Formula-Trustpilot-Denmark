@@ -1,0 +1,1 @@
+# GLP-Formula-Trustpilot-Denmark
